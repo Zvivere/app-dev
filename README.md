@@ -6,4 +6,3 @@ My favorite characters in order
 1. *Lenore*
 2. *Hector*
 3. *Sypha*
-! (lenore.jpg)
